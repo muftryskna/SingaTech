@@ -8,7 +8,5 @@ Nama Anggota
 4. Devi Febrianti 21100
 5. Citra 21100
 
-Dosen Pengampu
+Dosen Pengampuh
 Sigit Wijanarko, S.Kom., M.Kom
-
-Visit our page on singatimd01
